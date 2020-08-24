@@ -31,7 +31,7 @@
 - [TrueCrypt Güvenli Dosya Şifreleme Yöntemi](https://darkcyberweb.blogspot.com/2020/06/truecrypt-guvenli-dosya-sifreleme.html)
 - [Deep Frezze ](https://darkcyberweb.blogspot.com/2020/06/deep-frezee-bilgilarn-guvenligi-saglyan.html)
 
-➡️ [more blog posts...](https://darkcyberweb.blogspot.com/)
+➡️ [Blog Post...](https://darkcyberweb.blogspot.com/)
 
 ---
 
