@@ -1,4 +1,4 @@
-## Ben EjderMagon Yeni Nesil Çalışkan PesEtmeyen Kaliteli Gurulu Gençlere İhtyacımız var :)
+## Ben EjderMagon Yeni Nesil Çalışkan PesEtmeyen Kaliteli Gururlu Gençlere İhtyacımız var :)
 
 🔭 8 Yılık Tecrübemi /PesEtmeyen/HiçbirZamanBırakmayan/Yorulmayan/ İnsanlara Aktarıyorum!
 <br>
@@ -13,7 +13,7 @@
 ⚡ Söz : Vatanını En Çok Seven Görevini En İyi Yapandır
 
 
-### Sosyel Medya:
+### Sosyal Medya:
 
 [<img align="left" alt="darkcyberweb" width="22px" src="https://raw.githubusercontent.com/iconic/open-iconic/master/svg/globe.svg" />][website]
 [<img align="left" alt="EjderMagon | YouTube" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
