@@ -1,11 +1,16 @@
 ## Ben EjderMagon Yeni Nesil Çalışkan PesEtmeyen Kaliteli Gurulu Gençlere İhtyacımız var :)
 
-🔭 8 Yılık Tecrübemi /PesEtmeyen/HiçbirZamanBırakmayan/Yorulmayan/ Aktarıyorum!
+🔭 8 Yılık Tecrübemi /PesEtmeyen/HiçbirZamanBırakmayan/Yorulmayan/ İnsanlara Aktarıyorum!
+<br>
 🔭 PhotoShop/VideoEditleme/Donanım/Network/Marangozluk/Programlama/SiberGüvenlik Bir Çok Şeyde Bilgim var
+<br>
 🌱 Küçüklükten Beri Programlama Merak İle Başladım Sonra SiberGüvenlik Geçtim🤣
+<br>
 👯 Diğer içerik oluşturucularla ortak çalışmak istiyorum
+<br>
 🥅 Açık Kaynak projelerine daha fazla katkıda bulunun
-⚡ Söz : Vatanını En Çok Seven Görevini En İyi Yapandır.
+<br>
+⚡ Söz : Vatanını En Çok Seven Görevini En İyi Yapandır
 
 
 ### Sosyel Medya:
