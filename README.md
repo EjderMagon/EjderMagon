@@ -1,6 +1,6 @@
 ## Ben EjderMagon Yeni Nesil Çalışkan PesEtmeyen Kaliteli Gururlu Gençlere İhtyacımız var :)
 
-🔭 11 Yılık Tecrübemi /PesEtmeyen/HiçbirZamanBırakmayan/Yorulmayan/ İnsanlara Aktarıyorum!
+🔭 Küçüklüğümden Beri Öğrediğim Herşey 11 Yılık Tecrübemi /PesEtmeyen/HiçbirZamanBırakmayan/Yorulmayan/ İnsanlara Aktarıyorum!
 <br>
 🔭 PhotoShop/VideoEditleme/Donanım/Network/Marangozluk/Programlama/SiberGüvenlik Bir Çok Şeyde Bilgim var
 <br>
