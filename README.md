@@ -20,16 +20,7 @@
 
 - 📝 Blogger [http://darkcyberweb.blogspot.com/](http://darkcyberweb.blogspot.com/)
 
-### Sosyal Medya:
-
-[<img align="left" alt="darkcyberweb" width="22px" src="https://raw.githubusercontent.com/iconic/open-iconic/master/svg/globe.svg" />][website]
-[<img align="left" alt="EjderMagon | YouTube" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
-
-<br>
-<br>
-
 ### 📕 Top 5 Post
-
 
 - [Dcw Tool 2020](https://darkcyberweb.blogspot.com/2020/08/dcw-tool-by-ejdermagon.html)
 - [Burp Suite Professional 2020.8 Kali + Windows uyumlu](https://darkcyberweb.blogspot.com/2020/08/burp-suite-professional-20208-kali.html)
